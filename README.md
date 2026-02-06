@@ -1,6 +1,14 @@
-## Hi
+## Hi ,, more about me !!
 
-Hello !!
+may not respond ; the reason why is bc im probably doing smth so sorry!! (,,>﹏<,,)
+
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
+usually listenin to msuic,, ˖ ݁♬⋆.˚𝄞 . .
+
+barely a talker , but ! ; if you wanna have a talk with me i can !!
+
+my dni is the basics yeah
 
 <!--
 **lightswitched/lightswitched** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
