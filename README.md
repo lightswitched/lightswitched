@@ -80,7 +80,7 @@ my dni is the basics yeah
 
 . .
 
-whisper 2 int ; or talk . ; DNC unless you ask + unless friends , RPDNI ; DNCOVER unless if your cuddling + unless friends !!
+w2i / boop2int ; DNCOPY unless you ask + unless friends , RPDNI ; DNCOVER unless if your cuddling + unless friends !!
 <!--
 **lightswitched/lightswitched** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
