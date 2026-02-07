@@ -80,7 +80,7 @@ my dni is the basics yeah
 
 . .
 
-w2i / boop2int ; DNCOPY unless you ask + unless friends , RPDNI ; DNCOVER unless cuddles + unless friends !! ; i LOVE affection from ppl i think r cool(friends) / my close friend ,, ((example ; nuzzling , gift giving/item giving ,,))
+w2i / boop2int ; DNCOPY unless you ask + unless friends , RPDNI ; DNCOVER unless cuddles + unless friends !! ; i like affection from ppl i think r cool(friends) / my close friend ,, ((example ; nuzzling , gift giving/item giving ,,)) ; dont kiss me unless friends / close friend + giving a compliment to my pony ,,
 <!--
 **lightswitched/lightswitched** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
