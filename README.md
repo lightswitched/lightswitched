@@ -48,11 +48,11 @@
 
 may not respond ; the reason why is bc im probably doing smth so sorry!! (,,>﹏<,,)
 
-..
+. .
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-..
+. .
 
 usually listenin to msuic,, ˖ ݁♬⋆.˚𝄞 . .
 
@@ -78,9 +78,9 @@ my dni is the basics yeah
 ⢻⣿⣿⣷⡄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠳⡏⠋⠉⠂⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
+. .
 
-
-whisper to int ; or talk . 
+whisper 2 int ; or talk . ; DNC unless you ask + unless friends , RPDNI ; DNCOVER unless if your cuddling + unless friends !!
 <!--
 **lightswitched/lightswitched** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
