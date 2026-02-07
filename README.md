@@ -51,6 +51,7 @@ may not respond ; the reason why is bc im probably doing smth so sorry!! (,,>﹏
 ..
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
 ..
 
 usually listenin to msuic,, ˖ ݁♬⋆.˚𝄞 . .
