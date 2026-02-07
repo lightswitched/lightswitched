@@ -85,7 +85,7 @@ my dni is the basics yeah
 
 . .
 
-w2i / boop2int ; DNCOPY unless you ask + unless friends , RPDNI ; DNCOVER unless cuddles + unless friends !! ; i like affection from ppl i think r cool / friends / my close friend ,, ((example ; nuzzling , gift giving/item giving ,,)) ; dont kiss me unless friends / close friend + giving a compliment to my pony ,,
+w2i / boop2int ; DNCOPY unless you ask + unless friends , RPDNIUD + unless with friends / close friend ; DNCOVER unless cuddles + unless friends !! ; i like affection from ppl i think r cool / friends / my close friend ,, ((example ; nuzzling , gift giving/item giving ,,)) ; dont kiss me unless friends / close friend + giving a compliment to my pony ,,
 
 if i think your cool , i may give you gifts like roses , paper with heart , or anything nice..and sometimes may c+h! (if i did anything like this to you, i gen like you!)
 <!--
