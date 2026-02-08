@@ -59,7 +59,7 @@ may not respond ; the reason why is bc im probably doing smth so sorry!! (,,>﹏
 
 . .
 
-usually listenin to msuic,, ˖ ݁♬⋆.˚𝄞 . . ( maybe will put LTM in my name )
+usually listenin to music,, ˖ ݁♬⋆.˚𝄞 . . ( maybe will put LTM in my name )
 
 barely a talker , but ! ; if you wanna talk 2 me i wont mind !!
 
